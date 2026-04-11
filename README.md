@@ -4,7 +4,7 @@ Email: phyuthitshin@gmail.com
 Phone: 09-27471372, 09-765028704
 Personal Information
 • Date of Birth: 9.10.2002  
-• Age: 22 years  
+• Age: 23years  
 • Gender: Female  
 • Nationality: Myanmar  
 • Ethnicity: Karen  
